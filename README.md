@@ -8,7 +8,7 @@ Meu nome é Victor
 
 ### Aluno do colégio estadual Denise cardoso de Albuquerque 1 ano🏛️
 
-- Estudo no [ALURA]
+- Estudo no [ALURA](https://www.alura.com.br)
 
 
 
