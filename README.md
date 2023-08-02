@@ -8,3 +8,8 @@ Meu nome é Victor
 
 ### Aluno do colégio estadual Denise cardoso de Albuquerque 1 ano🏛️
 
+
+
+
+
+![](https://tenor.com/pt-BR/view/gift-lagi-gif2-gif-18885149)
