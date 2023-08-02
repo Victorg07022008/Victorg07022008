@@ -11,6 +11,4 @@ Meu nome é Victor
 - Estudo no [ALURA](https://www.alura.com.br)
 
 
-
-
 ![](https://tenor.com/pt-BR/view/gift-lagi-gif2-gif-18885149)
